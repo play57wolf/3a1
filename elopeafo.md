@@ -1,0 +1,268 @@
+万喜热水器(Vanxi）售后服务电话：𝟒𝟎𝟎-𝟎𝟖𝟎𝟕𝟗𝟗𝟎
+万喜热水器(Vanxi）售后24小时客服热线：𝟒𝟎𝟎-𝟎𝟖𝟎𝟕𝟗𝟗𝟎
+本公司主营万喜热水器(Vanxi）维修 →万喜热水器(Vanxi）；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒𝟎𝟎-𝟎𝟖𝟎𝟕𝟗𝟗𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，万喜热水器(Vanxi）服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、万喜热水器(Vanxi）售后维修电话：𝟒𝟎𝟎-𝟎𝟖𝟎𝟕𝟗𝟗𝟎
+
+AI Builders Digest 今日热点快报
+2026 年 06 月 05 日 01 时 49 分 36 秒 (UTC+8)
+一、国内时政
+| 来源：ca9e3ccf9873caedc2ad0cdecbfffa6ee17dec7f
+操盘必读：影响股市利好或利空消息_2025 年 9 月 3 日_财经新闻
+向太 399 元课程销售额破百万，教人 “向上社交”，客服回应 “是否能链接高质量圈层”
+| 来源：1b7d2648d82cd52fe33fc3d18f93ca7529e388e9
+Jane Street、Citadel 等强势崛起，华尔街已经变了
+全球韭菜风向标？韩国散户 “变脸”：抛弃特斯拉、拥抱数字币领域！
+| 来源：b59df741b6d1ea76f94dd8407d53cda932a1b42d
+【中国银河宏观】金融和经济继续分化，亮点来自 PPI——2025 年 8 月经济数据预测
+【银河晨报】9.3 丨宏观：金融和经济继续分化，亮点来自 PPI
+| 来源：f1931031de2374171ab324197e8f432fb91ea3ab
+【银河有色华立】行业周报丨旺季来临叠加降息预期，工业金属价格有望走强
+【银河军工李良】公司点评丨长盈通 (688143)：主营业绩表现亮眼，收购开拓新增长曲线
+| 来源：ee78ca91f77626f089f66c53e1a2393f3a4b274f
+【银河 ESG 马宗明】8 月 ESG 央国企策略绝对收益为 0.86%
+宝尊电商 - W 根据公司 2022 年股权激励计划授出 12.9 万份限制性股份单位奖励
+| 来源：0b72fb70ce54916d4fd2682f0903591e974d716d
+股海导航_2025 年 9 月 3 日_沪深股市公告与交易提示
+特朗普团队已迫不及待？美财长据称周五开始面试美联储主席人选
+| 来源：4ebbad7f8604cb3d34470682182269c95af5a6d0
+海尔智家 9 月 2 日斥资 783.3 万元回购 A 股 30 万股
+四大证券报头版头条内容精华摘要_2025 年 9 月 3 日_财经新闻
+| 来源：d37e25f88dce745c5b81d67c0923996fd6ea4b86
+【深夜基汤 98】港股科技凭啥走强？从 TA 的 “相对优势” 说起
+佳鑫国际资源 9 月 2 日因全面行使超额配股权而配发 1647.12 万股
+| 来源：bbe7824f8240b2814b82ca3616d79bdd01c6954e
+蔚来 - SW 发布第二季度业绩 收入总额 190.087 亿元同比增加 9%
+重磅！本土 4 通道 12 位 40GSPS ADC 大突破！开启多领域应用新纪元
+| 来源：6ddd3f6aeb8af1ae6a31b344a9b7b21a56af5200
+固生堂 9 月 2 日斥资 465.72 万港元回购 14.09 万股
+鞍钢集团 18 项成果荣获 2025 年冶金科学技术奖
+| 来源：69c9b2fd920c5cafdebadf58c901a967cfc9ddac
+江阴苏龙 2×66 万千瓦四期扩建项目正式开工
+OpenAI 宣布 11 亿美元收购初创公司 Statsig：任命其 CEO 为应用技术负责人，加速产品开发落地
+| 来源：e868f6878c1682518b4a86509c5d26c6a94eeb8d
+【行业资讯】3150 万美元注入勘探！中海油与哈萨克斯坦联合成立油气项目作业公司
+韩国将设立 1 万亿韩元基金，支持受美国关税打击的关键产业
+| 来源：b674c61a6b814c3061673efc9bb8e31a76319b9c
+阿里字节联手，投资一家芯片公司
+极米科技官宣将赴港上市，上半年净利飙升 20 倍，中国投影机市场连续五年半出货量第一
+| 来源：b4d2e2704ef6ae04c422ce01c23399177fa8b2fb
+罗技 G PRO X Superlight 2c 鼠标现身海外电商，更紧凑 53g 设计
+高毅、景林、宁泉、睿郡……“底牌” 曝光
+| 来源：3ac8d46575b3e6e90f2fa4dc332ba54181143fae
+JENNIE 联名苹果 Beats Solo 4 耳机周五限量上市，售价 200 美元
+全球国债抛售潮！30 年美债收益率重回 5%，发生了什么？
+| 来源：d7766a00a76922b4e1351af21c483114092864e0
+打破界限！Coinbase 推出全球首个 “科技巨头 + 加密货币” 混合期货
+反向拆股触发抛售狂潮 美国电车新势力 Lucid 股价暴跌超 10%
+| 来源：0e4d2abe8f3793316f2619971240c9c180cd9e6a
+站上 3600 美元！金价创历史新高之际 央行黄金持有量 30 年来首超美债
+白宫公开露面，特朗普回答 “健康问题”：休息两天，他们就怀疑 “出了什么问题”
+| 来源：f1579cb50742e70b74e8ca51235e01773f28859f
+避险情绪升温，黄金再刷新高
+高盛预测 2026 年全球并购交易规模或达 3.9 万亿美元 创历史新高
+| 来源：9ba2d4d303b57ad564bba05f60911d740e56eb11
+政企联动谋发展 打造农业 “新引擎” | 安徽省怀远县副书记许汉生一行莅临天马科技集团考察调研
+阿维塔汽车高层专访
+| 来源：ed018dbfc12607c6b7da71622b3f6a770d85809c
+财信证券晨会报告 20250903
+中国化学七大设计院，2025 年上半年经营情况如何？
+| 来源：7d4aba938106146f53d50cce7b8946fa7ff64a8f
+【光大海外】汇聚科技首次覆盖报告
+中国移动 “0 元购” 中国石油 5.4 亿股
+| 来源：75d92bfb771ba8897520bd9b96df4054191e13f2
+A 股特别提示（9-3）：美联储降息助力黄金期货冲高，贵金属开启新一轮上涨征途
+日韩股市开盘涨跌不一 日经 225 指数开盘下跌 0.47%
+| 来源：5f9627cee51d0f2cf3d3c32f32a7c1716eed4d6c
+2025 爱分析?一体机市场厂商评估：品高股份
+中国 — 上海合作组织能源合作平台在京成立
+| 来源：f0c76d84c962ba358438c8eb15b7d585d2d33555
+兴业证券张忆东：南向资金改写定价逻辑 港股中长期上涨趋势确立
+东芯股份核查工作完成公司股票 9 月 3 日复牌
+| 来源：a1710b51b4d2eaef029b53e6ebd7099cd9a5b6a8
+Salesforce 称已裁减约 4000 个客户支持岗位，用人工智能取代
+苹果 AI 人才再遭挖角，机器人研究负责人转投 Meta
+| 来源：60ce12ed0e92320708fccae7b0f7b6d5bba3c1db
+PCB 龙头芯碁微装递表港交所 重要股东多次减持
+三大指数回调 沪指跌 0.45%
+| 来源：20b888b0c4d62343e4ffefb353a3ce70daf7779f
+“反内卷” 度再起，多晶硅期价强势上涨
+特朗普发声，将就全球关税案裁决提起上诉！美联储主席候选人将迎来面试！纽约期金突破 3600 美元 / 盎司！
+| 来源：4afb6bfbf08046f4e881c48fc2e72adf0135aa14
+【华西商社】焦点科技：主站 + AI 麦可会员数量快速增长，即将推出买家侧 AI 工具
+【华西医药】联影医疗：国内市场持续回暖，海外市场快速增长
+| 来源：97c1c48946c65aa8edac7696e564f6f01d1ab2e5
+【华西非银】哈投股份：电与证券双轮驱动
+上半年公募赚钱榜揭晓：36 家基金公司净利润相较 2024 年同期实现正增长
+| 来源：763929782a623623ea2f78fae5bce563e825f6b1
+金价盘中突破 3600 美元，刷新历史新高，中国资产逆势上涨
+部分股权拟被拍卖 民生人寿调整未完
+| 来源：2beaba5bba3b13da6b4b3afe4ee2418f5f2df54f
+黄金交易提醒：美国制造业崩盘式萎缩，关税风暴下 “避险之王” 刷新历史高点
+4 家上市险企中期分红近 300 亿元
+| 来源：78a8740d8267c0ee601d70a20ac0b1c673c86f0d
+银行中期分红来了！国有大行分红超 2000 亿元
+【东吴晨报 0903】【策略】【个股】首旅酒店、鼎胜新材、比亚迪、长华集团、固生堂、顺丰同城、阿里巴巴 - W
+| 来源：fb8db2d9fd8a2536128f7b4fcf9e4471886bcfb8
+韩国第二季度 GDP 增速被上修至 0.7%，为一年多来最高
+卡夫亨氏拆分计划惹怒巴菲特 穆迪警告或下调其投资级评级
+| 来源：35bb243bb86d43b771038f08f012d9ca6ddf321c
+上市银行竞逐移动端，加速迭代提升服务质效
+688110 核查完成，今起复牌！多家车企相继披露 8 月销售数据，机构看好这些股
+| 来源：d53389763b55276b77188c15917cb44a05529265
+“反内卷” 下的银行业 真正回归价值服务
+北方华创 立式炉与 PVD 出货量破千台 新产品布局完善平台化战略
+| 来源：5445781919c705c4f2e34b17364a7a6cc4837ab6
+东芯股份核查完成，今起复牌！多家车企相继披露 8 月销售数据，机构看好这些股
+【朝闻国盛 0903】A 股 2025 年中报全景分析
+| 来源：76eb5b0e8c8326126be3ffbaf10ec7df58201a6f
+AI + 深度研究 | AI Agent 投资图谱
+半年报总结 | 天风电子：25Q2 半导体业绩总结及展望 —AI 驱动与国产替代共筑成长主线
+| 来源：6748d4ae3bd10419fe75879ed422d38351e4c75d
+华泰证券：9 月高股息投资的两条线索
+今天，为什么这 26 国领导人齐来北京？
+| 来源：ee8bab054df9e2a10fb8221daa7670744992c5fc
+特朗普称芝加哥像地狱，将派驻国民警卫队
+净利润全靠投资收益，华胜天成现金流承压
+| 来源：a8f879f6d2349c55bfee04b5208566326b3e7404
+百亿私募二季度新进 32 只 A 股，电子、医药生物、计算机行业受青睐
+9 月 3 日财经早餐：坚定押注美联储本月降息，金价刷新历史新高剑指 3550，美制裁伊朗石油收入提振油价
+| 来源：7cde97456b4117debff96795b4ee4612868008b
+广汽集团，破釜沉舟
+房县：破百万税费僵局 助力权益兑现
+| 来源：a81d20ef47132d921f17475dcc78e2d34bb11bc0
+新南威尔士州政府将美元敞口从 75% 猛削至 14%! 美元熊市周期正在上演
+中信建投：拐点已现，新动能主导结构性行情
+| 来源：7cde97456b4117debff96795b4ee4612868008b
+8 月新势力销量：零跑 5.71 万再登顶！理想跌破 3 万被蔚来反超
+韩国 8 月外汇储备连续三个月增长，创近一年新高
+| 来源：6a15243eab0e578eeaa52977cc63bedcf22925c3
+硅谷观察：雀巢 CEO 为何一年就下台，触到了职场高压线！
+5.41 亿股股权 “无偿易主”！中石油→中移动
+| 来源：85bed42c6e4ce066bb3cff1b50499901234b754a
+上海电气与东方航空共探绿色航空合作新路径
+8 月股价涨幅超 82% 的东芯股份复牌，“反路演” 引投资者戏称 “东伟达” 来了 公司半年报现 “牛散” 赵建平、赵吉
+| 来源：1ce4b66487ceded5ea1e297cf07c67614c57bf30
+韩国将对受美国关税影响的钢铁和铝企业提供 5700 亿韩元支持
+欧央行下周按兵不动？官员放风：通胀受控 维持利率是合理之举
+| 来源：b1d9d15bdb2d6bc43a4ac4025c50e3ff958edcc9
+“稳进兼备” 成保险业半年报关键词
+美国财长贝森特将于周五开始面试美联储主席人选
+| 来源：a64c86511338af6d98656fa6255a191e99faf3ed
+财经早报：265.03 万户！8 月 A 股新开户数大增，宇树科技将在四季度提交 IPO 申请
+阿里云启动 AI 原生编程赛，聚焦智能运维创新
+| 来源：3ac8d46575b3e6e90f2fa4dc332ba54181143fae
+中国电建应邀参加中哈企业家委员会第八次会议
+美国投行给中国光刻机落后 ASML 20 年原因：缺乏制造先进光刻扫描仪能力
+| 来源：d10bde25b5775e5cfa07576952a8259dd9c6747e
+据悉美国财长将于周五开始对美联储主席候选人进行一系列面试
+华尔街见闻早餐 FM-Radio | 2025 年 9 月 3 日
+| 来源：40b366d553bb442678570fe88775484452cf5d27
+牵手八大国有车企华为汽车板块扩大 “朋友圈”
+博世与阿里深化合作，共推智能驾驶与云转型
+| 来源：3c0e3d26f819c7283cd0d35052e40642760a517f
+谷歌赢得重大胜利，美法官裁决其无需剥离 Chrome 浏览器和安卓系统
+法官裁决允许苹果保留谷歌默认搜索协议 年赚 200 亿美元合作获 “绿灯”
+| 来源：https://github.com/markpancho/bftgewyr3/commit/b1d9d15bdb2d6bc43a4ac4025c50e3ff958edcc9
+https://github.com/markpancho/bftgewyr3/commit/a64c86511338af6d98656fa6255a191e99faf3ed
+https://github.com/markpancho/bftgewyr3/commit/3ac8d46575b3e6e90f2fa4dc332ba54181143fae
+https://github.com/markpancho/bftgewyr3/commit/d10bde25b5775e5cfa07576952a8259dd9c6747e
+https://github.com/markpancho/ghtyr888/commit/40b366d553bb442678570fe88775484452cf5d27
+https://github.com/markpancho/ghtyr888/commit/3c0e3d26f819c7283cd0d35052e40642760a517f
+https://github.com/markpancho/ghtyr888/commit/c6aa92ec88978e1ec00ec75e0cc3d8334e9684cd
+https://github.com/markpancho/ghtyr888/commit/f0f68473ac52f3ac85ee58c03b5928b5be50a7f2
+https://github.com/markpancho/ghtyr888/commit/f0f68473ac52f3ac85ee58c03b5928b5be50a7f2
+https://github.com/markpancho/ghtyr888/commit/fd5d5a76f8ece6cb709367593f577b17ec5d554a
+https://github.com/markpancho/ghtyr888/commit/5bd2c6a795c7a208f4fee35ff46921e384240279
+https://github.com/markpancho/ghtyr888/commit/b79ceff7c22f8ef808943e0114fdd4c2bf0169ff
+https://github.com/markpancho/ghtyr888/commit/5bd2c6a795c7a208f4fee35ff46921e384240279
+https://github.com/markpancho/ghtyr888/commit/6ab195804822aabc61d796c43d77fb22515a423b
+https://github.com/markpancho/ghtyr888/commit/f999e3e998543e676d85cc09f06d33997e732c0c
+https://github.com/markpancho/ghtyr888/commit/ec420838629ed1e8e1bb57a94582dedb79cf0e15
+https://github.com/markpancho/ghtyr888/commit/42701cf851e3c1d7578f13a2c89a37ac2ef85c7f
+https://github.com/markpancho/ghtyr888/commit/a08e224e5f606f220c50086a124fa4f8d91500ed
+https://github.com/markpancho/ghtyr888/commit/cf3da94476dedf834a0b045e8dfc95990b323693
+https://github.com/markpancho/ghtyr888/commit/29240a5acfc7157c7857657d2d864bf312232196
+https://github.com/markpancho/ghtyr888/commit/1855c3ae6c8cf904f806688816eb462eaee18e78
+https://github.com/markpancho/ghtyr888/commit/98997864bf1f16e5240b3d37e6c17c6fc611cb6e
+https://github.com/markpancho/ghtyr888/commit/9100dda280efd1afc671ce3a6ad5dd1d8b7b2c54
+https://github.com/markpancho/ghtyr888/commit/e558d78ea53dd52b2b63d466723d9857e5dd0682
+https://github.com/markpancho/ghtyr888/commit/d830ca2c0b0d2be1946e1c2c0d23057971216d5e
+https://github.com/markpancho/ghtyr888/commit/99eba4f819750e462fb7a3de1d90b9043ce071a9
+https://github.com/markpancho/ghtyr888/commit/24a3290941e7ba589afa7c119954c6147184909d
+https://github.com/markpancho/ghtyr888/commit/d7c58ede719c093cdd8ecd2172c4d7eeb9e18265
+https://github.com/markpancho/ghtyr888/commit/f9e5fd4e33a70222469fac8add82713ae444482d
+https://github.com/markpancho/ghtyr888/commit/44a9b3ad59b16005b56b23ccb98dad48008f019e
+https://github.com/markpancho/ghtyr888/commit/25c193a7b31bea42e8d07df277e05415cae34441
+https://github.com/markpancho/ghtyr888/commit/c498e2a40a0475f200be66c88e0766e373fa793c
+https://github.com/markpancho/ghtyr888/commit/4272f5412b3735dcfea3c102ce6640ddcdaef4ec
+https://github.com/markpancho/ghtyr888/commit/1e8d71542c01e7a5a244ee36b15d89e4673d565e
+https://github.com/markpancho/ghtyr888/commit/d4ba9bbe0eafbae94a805274c82fcb50bfe9ddbd
+https://github.com/markpancho/ghtyr888/commit/90b05b365788d0120e07d997277e66f0d849e48d
+https://github.com/markpancho/ghtyr888/commit/39754d6b88c1b2ee78a109a1829d3c043f8f0880
+https://github.com/markpancho/ghtyr888/commit/90b05b365788d0120e07d997277e66f0d849e48d
+https://github.com/markpancho/ghtyr888/commit/ff2ec5c516a378930bd76092180f703ae87bdba3
+https://github.com/markpancho/ghtyr888/commit/2cfd31dbdf83b4384b00a07dc8fc6add481495ff
+https://github.com/markpancho/ghtyr888/commit/50de5e9fea3ced8bddb07baa38fa0b68a014f38d
+https://github.com/markpancho/ghtyr888/commit/29c8adf0588b22be75f9ad07753ae1012499db61
+https://github.com/markpancho/ghtyr888/commit/2fff157480e3e39b7160db0b24ed70a2fde5060d
+https://github.com/markpancho/ghtyr888/commit/8d28c758ce7e1e2307e4b151be3422b5a970d701
+https://github.com/markpancho/ghtyr888/commit/0efbd4a3160d1254d0bee5f19d67ac9aa9b9fe85
+https://github.com/markpancho/ghtyr888/commit/f077281dc98a2b6474744bf3b40e677774f5751b
+https://github.com/markpancho/ghtyr888/commit/1ac6c0d65423d3ab0faa1f6813eeb2e17f210a60
+https://github.com/markpancho/ghtyr888/commit/88a151984dbdb09ded71cf3fbd2682ad19af66f9
+https://github.com/markpancho/ghtyr888/commit/142d410b6d02a31b0b9444e4a2a61dec18d0f5dd
+https://github.com/markpancho/ghtyr888/commit/2a3b877e96b72a33db88b8f014ea29003a901242
+https://github.com/markpancho/ghtyr888/commit/caf59caba447f1debd08c474bfbdcfcb02c954fc
+https://github.com/markpancho/ghtyr888/commit/f2cea6ef1423b8203aa08df0a3cc09fc1e86320a
+https://github.com/markpancho/ghtyr888/commit/d332f3c76166a8f15e1161ab64be9481e1872dd1
+https://github.com/markpancho/ghtyr888/commit/2a3b877e96b72a33db88b8f014ea29003a901242
+https://github.com/markpancho/ghtyr888/commit/912616df48c09d2c1a647cd7956156f4b830aa4e
+https://github.com/markpancho/ghtyr888/commit/912616df48c09d2c1a647cd7956156f4b830aa4e
+https://github.com/markpancho/ghtyr888/commit/8fda37c664219404882d40525331d5dea08dece8
+https://github.com/markpancho/ghtyr888/commit/14b5d2a03dc3b91e40755bb49b7cf5b087fc6696
+https://github.com/markpancho/ghtyr888/commit/6604a3b088aa9e2ad47742774ed35b6e7e969643
+https://github.com/markpancho/ghtyr888/commit/fa0c90c5b2f6332dbc392078f3cb93644e422307
+https://github.com/markpancho/ghtyr888/commit/6ddfdedebce57472b8483b9eb1fa3f098e44b83d
+https://github.com/markpancho/ghtyr888/commit/7cb2bcbaa99a166ff1e5be3fa65d9eeee4a49a82
+https://github.com/markpancho/ghtyr888/commit/ee2a17e5b4e60bfa7f023467a1e146ba7a360f2b
+https://github.com/markpancho/ghtyr888/commit/9958891751708eeb91c58d47f30106a1f7d993e3
+https://github.com/markpancho/ghtyr888/commit/003b92a224edaf56284acea4ef1389262d0645cd
+https://github.com/markpancho/ghtyr888/commit/2c1f70cc5bd55482fa20631e18d0eda8098038f9
+https://github.com/markpancho/ghtyr888/commit/0b86d45e625a08131189555facf9ba3a4e28c363
+https://github.com/markpancho/ghtyr888/commit/4c0f5319ed7228ff863a23cd76a9ecf65e7aa5ac
+https://github.com/markpancho/ghtyr888/commit/4c0f5319ed7228ff863a23cd76a9ecf65e7aa5ac
+https://github.com/markpancho/ghtyr888/commit/cc741eeb84959ff18e636087a0fa6356b221ce57
+https://github.com/markpancho/ghtyr888/commit/816b3e00fa3d6e1537d9489393f40344327989db
+https://github.com/markpancho/ghtyr888/commit/4b049368c52668e8097004ccce0e3d71e43c4e03
+https://github.com/markpancho/ghtyr888/commit/4b049368c52668e8097004ccce0e3d71e43c4e03
+https://github.com/markpancho/ghtyr888/commit/5389e3b461d690b7e567a6ad6a69345d0a290fee
+https://github.com/markpancho/ghtyr888/commit/c1a4f459711eb892312fc02c78cf3e9d91e758af
+https://github.com/markpancho/ghtyr888/commit/96d2a964a01c1d69046243c56b2a66c5c81632e2
+https://github.com/markpancho/ghtyr888/commit/96d2a964a01c1d69046243c56b2a66c5c81632e2
+https://github.com/markpancho/ghtyr888/commit/7a77f437e6a248c8237f57df15c0c57e0a2fe595
+https://github.com/markpancho/ghtyr888/commit/52e1be30764891b35e83524869b2d5e97db8086a
+https://github.com/markpancho/ghtyr888/commit/af7799c84a236952ba9105adc455e63798ff8f15
+https://github.com/markpancho/ghtyr888/commit/616ca480a82038c6397f1ab5565622e9e815742b
+https://github.com/markpancho/ghtyr888/commit/85dd3a73cdaf2cfe7fdc7200917fbc3ca67ebc68
+https://github.com/markpancho/ghtyr888/commit/30e6c9979d47bdb38979de9a02bb8b80e6152031
+https://github.com/markpancho/ghtyr888/commit/eee493ab119f2c8d9629390e22a957eead026b0f
+https://github.com/markpancho/ghtyr888/commit/7ed12b60378be04d80eeb8158c449898a2ae6d91
+https://github.com/markpancho/ghtyr888/commit/8d897d1e1c93be5afa49def1a43ff2dfde029f24
+https://github.com/markpancho/ghtyr888/commit/ad1c913dbf0f590d510363f28219ed245b022ef7
+https://github.com/markpancho/ghtyr888/commit/20242cd6f5e4fab0f041892241033af1981017d4
+https://github.com/markpancho/ghtyr888/commit/78a662a10d9b120e76d75ad06e7df2a3e3d71224
+https://github.com/markpancho/ghtyr888/commit/20242cd6f5e4fab0f041892241033af1981017d4
+https://github.com/markpancho/ghtyr888/commit/13b3904f537b1a8e49c3ce95415cf0d92b412ac2
+https://github.com/markpancho/ghtyr888/commit/13b3904f537b1a8e49c3ce95415cf0d92b412ac2
+https://github.com/markpancho/ghtyr888/commit/cb80725d1cf623185521dcabd24a76486c30b92a
+https://github.com/markpancho/ghtyr888/commit/f71486284454de10999cee17337e4ce3d095ae25
+https://github.com/markpancho/ghtyr888/commit/d99337bb6e4d1b172211a262c8c71fb99de12a8d
+https://github.com/markpancho/ghtyr888/commit/f71486284454de10999cee17337e4ce3d095ae25
+https://github.com/markpancho/ghtyr888/commit/11f2b36d97aa469592f221d582e4999796ecbe08
+https://github.com/markpancho/ghtyr888/commit/4d6e74140693a822551ed98cd3a7304c87f1f111
+https://github.com/markpancho/ghtyr888/commit/31f5dec74029d8ed3c647612e0d9b5704cf6b036
+https://github.com/markpancho/ghtyr888/commit/31f5dec74029d8ed3c647612e0d9b5704cf6b036
+
